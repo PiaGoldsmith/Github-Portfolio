@@ -9,6 +9,7 @@ I am young, motivated and hardworking, looking for a job in the Finance industry
 ### [University of Waikato](https://github.com/user-attachments/files/18858004/Academic.Record.pdf)
 #### 2020 – 2023
 [* Batchelor of Business, major in Finance](https://github.com/user-attachments/files/18858010/Certificate.pdf)
+[Academic Record.pdf](https://github.com/user-attachments/files/18858023/Academic.Record.pdf)
 
 
 
