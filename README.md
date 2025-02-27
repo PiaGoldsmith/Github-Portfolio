@@ -2,8 +2,7 @@
 Kia ora! I’m a Finance graduate with experience in a variety of administrative, project, and analytical tasks. I’m passionate about being efficient and am always looking for new opportunities to grow and learn.
 
 ## About Me
-
-I am young, motivated and hardworking, looking for a job in the Finance industry. 
+Reliable and motivated individual seeking an opportunity to work in the Finance or Law sectors. 
 
 ## My Education
 ### [University of Waikato](https://github.com/user-attachments/files/18858004/Academic.Record.pdf)
@@ -17,3 +16,5 @@ I am young, motivated and hardworking, looking for a job in the Finance industry
 
 ### Te Wharekura o Mauao
 #### 2014 – 2016
+
+
